@@ -1,4 +1,4 @@
-## Curriculum
+## CV
 
 #### Nome Completo: *Gabriella Rodrigues Capeletti*
 #### Nome Artístico: *DAMANOBEAT*
@@ -12,3 +12,5 @@
 + 2021 - Portas dos Fundos - Oficina de Improvisação Teatral 
 + 2022 - Studio Forest Lab (Lisciel Franco) - Cozinhando na mesa de som
 + 2022 - PreSonus - Mixing and Mastering
+
+## Trajetória profissional
