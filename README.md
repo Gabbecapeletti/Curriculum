@@ -14,3 +14,8 @@
 + ***2022***  - PreSonus - Mixing and Mastering
 
 ## Trajetória profissional
++ ***2021*** - Beat Brasilis/Cave Pool - Jam Open Public de Beats - Produção Musical
++ ***2022*** - FLI (Festival Literário Oficinas Culturais (Cypher Abraços)) - Produção Musical e Discotecagem
++ ***2022*** - Theatro Municipal de São Paulo - Esta Noite se Improvisa - Produção Musical e Discotecagem
++ ***2022*** - Estação Cultura Campinas - 2° Virada Afro Cultural - Produção Musical e Discotecagem
++ ***2022*** - Lançamento - Te Quiero por Ros4 Luz - Produção e Assessoria Musical
