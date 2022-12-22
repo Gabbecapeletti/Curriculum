@@ -1,3 +1,5 @@
+![Damanobeat](https://user-images.githubusercontent.com/121204326/209030938-6aa8aa3d-0130-4908-8749-931b51969074.png)
+
 ## CV
 
 #### Nome Completo: *Gabriella Rodrigues Capeletti*
