@@ -1,4 +1,4 @@
-![Damanobeat](https://user-images.githubusercontent.com/121204326/209030938-6aa8aa3d-0130-4908-8749-931b51969074.png)
+<img src="https://user-images.githubusercontent.com/121204326/209030938-6aa8aa3d-0130-4908-8749-931b51969074.png" width=128 height=128>
 
 ## CV
 
